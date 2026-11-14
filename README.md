@@ -1,11 +1,11 @@
 <div align="center">
 
-![](https://i.ibb.co/35vq3wQB/Untitled32-20260802035147.png)
+
 <div align="center">
-⠀―⠀　you have the thing, i <code style="color : #731A06">love</code>
+⠀just tell me you <code style="color : #731A06">love</code> me,
   
-but the <code style="color : #731A06">need</code> in me is way too much.
+and thats all that i <code style="color : #731A06">need</code> to hear.
   
-![](https://komarev.com/ghpvc/?username=reggression&style=plastic&label=bnse&color=731A06)
+![](https://komarev.com/ghpvc/?username=reggression&style=plastic&label=fans&color=ffffff)
 
 
